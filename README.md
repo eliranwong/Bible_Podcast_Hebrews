@@ -35,3 +35,9 @@ This repository contains materials for compiling videos uploaded at:
 [Hebrews 12 Faith Discipline and Holiness](https://youtu.be/myy86FAjbu0)
 
 [Hebrews 13 Exhortations and Final Greetings](https://youtu.be/U58m_z9Fa5Y)
+
+# Donation
+
+We appreciate your donations to the Gospel Church (UK): 
+
+https://www.gospelchurch.uk/%E5%A5%89%E7%8D%BB?lang=en
